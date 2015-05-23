@@ -1,0 +1,2 @@
+# Residential-Plots-NH91-GZB
+Himalaya Presents HIMALAYA HI – TECH CITY . Our vision behind this project is to bring to you a prime investment opportunity in NCR region . Having close proximity with Air Force Station Dadri makes this project highly secure and a trustworthy location to live in.Easy Payment Plan ,affordable Pricelist as compare to Delhi NCR Market. Gated &amp; Secured Society will emerged in Greater Noida Ph II Premises. 
